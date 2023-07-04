@@ -1,0 +1,2 @@
+# All-About-Animalia
+ All About Animalia is sort of a digital encyclopedia dedicated to showing you the latest clips of crazy animal antics. Here you can find cats walking dogs, sharks trying to get inside cages, tightrope-walking raccoons, and many more wild videos. This website is the ultimate multimedia guide to the animal kingdom. Whether you are a teacher or a student, explore and search for videos, photos and facts about different species of fascinating animals, birds, reptiles and insects..
